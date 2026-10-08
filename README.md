@@ -1,0 +1,1 @@
+# AI-for-Product-Managers-From-Product-Research-to-Launch-Ready-AI-Specs
